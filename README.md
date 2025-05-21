@@ -8,9 +8,12 @@ I'm passionate about streamlining workflows, organizing information and learning
 ---
 SKills and Tools
 MS Offfice (Excel, Word, Powerpoint - Advanced)
+Openoffice ( as same as MS Office)
 Data Entry Reports (Thempro- Banking software, CBS Support, CERSAI, CIBIL, Accounts Entries with Banking Software etc)
 Google Workspace (Doc, Sheets and Forms)
 Documentation and SOP Writing 
 Risk Management and train the juniors 
 NASSCOM Certificate with JAVA J2EE
 English Type writing in Lower 
+Photoshop cs
+
